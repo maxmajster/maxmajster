@@ -1,1 +1,1 @@
-The dust has settled after the great battle!
+currently working on ruchodrodzenianarodu.pl | ron.org.pl
